@@ -1,3 +1,3 @@
 # Bachelorarbeit
 
-Ich kann den Code zur Zeit nicht veröffentlichen. Bitte kontaktiere mich bei Interesse.
+I cannot publish the code yet. Please contact me if you are interested.
