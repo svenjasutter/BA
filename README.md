@@ -1,3 +1,3 @@
 # Bachelorarbeit
 
-Bitte kontaktiere mich, für eine Codeeinsicht. Ich kann den Code zur Zeit nicht veröffentlichen.
+Ich kann den Code zur Zeit nicht veröffentlichen. Bitte kontaktiere mich bei Interesse.
